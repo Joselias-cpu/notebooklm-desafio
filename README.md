@@ -11,7 +11,7 @@ Autor: Joselia Silva
 
 ***Introdução:***
 
-Para realização do Deafio DIO, utilizei como base uma das Mentes Brilhantes: Mentor da Mente Próspera : NAPOLEON HILL.
+Para realização do Deafio DIO, com resumo estruturado sobre um tema financeiro, utilizei como base uma das Mentes Brilhantes: Mentor da Mente Próspera : NAPOLEON HILL.
 
 Os materiais anlisados focam nas leis e principios de sucesso, nas estratégias mentais e comportamentais necessárias para alcançar a prosperidade e o triunfo pessoal.
 
